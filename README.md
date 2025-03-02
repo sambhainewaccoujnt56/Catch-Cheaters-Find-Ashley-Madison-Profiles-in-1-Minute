@@ -1,4 +1,4 @@
-Do You Want to Know If Your Husband Is Cheating on You? Here’s How Rachel Found Out
+The One-Minute Trick That Exposed My Husband’s Secret Ashley Madison
 ====================================================================================
 
 Do you ever get that gut feeling that something’s not right in your relationship? Maybe your husband has been acting distant, spending more time on his phone, or coming home late from work. You tell yourself it’s nothing, but deep down, you can’t shake the suspicion.
